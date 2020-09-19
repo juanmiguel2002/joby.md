@@ -7,7 +7,8 @@ json
       // código para colorear
 ```
 `` js
-      // código para colorear
+      // <span style="color: green"> hola </span>
+
 ```
 `` css
       // código para colorear
