@@ -9,6 +9,4 @@ te pones ha escuchar musica y las horas pasan y pasan.
 >A mi personalmente me gusta mucho la musica y de hecho estoy estudiando percusión en una academia
 privada.
 
-<font color="red"> hola </font> 
-
-#00ff00
+<font color="red"> hola </font>
