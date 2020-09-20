@@ -14,11 +14,12 @@ es decir, empezamos ha prepar todo lo que nececitamos hacer para el año que vie
   1. Priemro pensamos que canbiar en respecto al año passado
   2. despues miramos en varias paginas como esta :[corchosgomez](https://www.corchosgomez.com/)  
     >entramos en esa página para comprar figuras etc. 
-  3. lo solemos hacer todo natural con piedras,  troncos , _corfa dels troncs_ y piedras de sal de moro...   
- ##como nos # organizamos
-  ## fotos
-
-	
+  3. lo solemos hacer todo natural con piedras,  troncos , _corfa dels troncs_ y piedras de sal de moro y plantas naturales etnre otras cosas.
+  
+ # como nos organizamos ?
+*  en el verano  construyo las casas
+* en otoño ponemos en practica las modificaciones de la base de este.
+* y finalmente empezamos ya a montar a **principios  de noviembre.**
 ![  Foto del Belen 2019](https://scontent-mad1-1.xx.fbcdn.net/v/t1.0-0/p180x540/80419078_1400980843394685_5009858787033481216_o.jpg?_nc_cat=107&_nc_sid=8024bb&_nc_ohc=6NpA69z4iRoAX8TEK3B&_nc_oc=AQnd233Js8TWxP2AR4kSBCE8uzKzqOfKFbuW6N9j3k4_TGwCyAxZdeOPTN_m2FcMIU4&_nc_ht=scontent-mad1-1.xx&tp=6&oh=f4e3d869e23c384664e09a6ab7fc7f29&oe=5F8C0EF3)
 
 ![hola](https://scontent-mad1-1.xx.fbcdn.net/v/t1.0-9/s960x960/81531273_1400980916728011_7663899072721321984_o.jpg?_nc_cat=106&_nc_sid=8024bb&_nc_ohc=YZI5FkwDXq8AX98NABx&_nc_ht=scontent-mad1-1.xx&tp=7&oh=bce04919beafc0876d55b3b7e7fbfce5&oe=5F8B9574)
