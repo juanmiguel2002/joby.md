@@ -7,7 +7,7 @@
 ![nacimiento](https://scontent-mad1-1.xx.fbcdn.net/v/t1.0-0/p180x540/81459118_1400982243394545_8205317354360406016_o.jpg?_nc_cat=101&_nc_sid=8024bb&_nc_ohc=YBQE5YGwCWIAX_KI5hS&_nc_ht=scontent-mad1-1.xx&tp=6&oh=3be344685f70381d0d031b784f9445f4&oe=5F8B4E4D)
 
 ## Mi [belen](http://cronistadegata.blogia.com/2019/122805-temps-de-betlems-el-familiar-del-carrer-signes-de-gata-betlem-anita-canyetes-.-c.php?fbclid=IwAR2eVjlsOh6wopG26221FieXE7LDxs-G_wO49ObtQFNPsbUIjTN5Gkmzvt4)
->Yo lo hago siempre con mi padre y con ayuda de mi madre y mi hermana.
+>**Yo lo hago siempre con mi padre y con ayuda de mi madre y mi hermana.**
 
 Lo solemos hacer en una casa que es de mi padre  que antes era de mis abuelos. siempre lo empezamos ha preparar cuando acabamos de recoger el otro
 es decir, empezamos ha prepar todo lo que nececitamos hacer para el año que viene. Por ejemplo hacer más casas para hacer poblados,  comprar figuras que no tengamos...
@@ -35,3 +35,4 @@ es decir, empezamos ha prepar todo lo que nececitamos hacer para el año que vie
 
 ![hola](https://scontent-mad1-1.xx.fbcdn.net/v/t1.0-9/s960x960/81531273_1400980916728011_7663899072721321984_o.jpg?_nc_cat=106&_nc_sid=8024bb&_nc_ohc=YZI5FkwDXq8AX98NABx&_nc_ht=scontent-mad1-1.xx&tp=7&oh=bce04919beafc0876d55b3b7e7fbfce5&oe=5F8B9574)
  
+
