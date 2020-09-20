@@ -11,9 +11,8 @@ es decir, empezamos ha prepar todo lo que nececitamos hacer para el año que vie
 
 ## Como lo hacemos    
   1. Priemro pensamos que canbiar en respecto al año passado
-  2.despues miramos en varias paginas como esta :[corchosgomez](https://www.corchosgomez.com/)
-  3.
-    > En verano empiezo a disepñar casas y demás.
-  
+  2. despues miramos en varias paginas como esta :[corchosgomez](https://www.corchosgomez.com/)
+  3.     > En verano empiezo a disepñar casas y demás. 
+    
   ![esta imagen es preciosa](https://d33wubrfki0l68.cloudfront.net/eab45e25bb79970178fab7a2d10cba0209372a59/94d9e/assets/images/philly-magic-garden.jpg)
  
