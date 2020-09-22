@@ -24,9 +24,9 @@ es decir, empezamos ha prepar todo lo que nececitamos hacer para el año que vie
 * y finalmente empezamos ya a montar a **principios  de noviembre.**
 
 ## La inaguración
- solemos inagurar hacia finales de noviembre o principios de` diciembre`.
+> solemos inagurar hacia finales de noviembre o principios de` diciembre`.
 > Normalmente viene gente de todas las edades, grupos como ahora el TAPIS, el Junior, catequesis. vecinos y gete que le gusta y
- se emociona al ver el belén.
+ se emociona al ver el belén, gente de otros pueblos...
 :smiling_face_with_three_hearts: 
  
  # Fotos:
