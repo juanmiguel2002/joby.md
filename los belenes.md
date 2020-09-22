@@ -23,7 +23,7 @@ es decir, empezamos ha prepar todo lo que nececitamos hacer para el año que vie
 * en otoño ponemos en practica las modificaciones de la base de este.
 * y finalmente empezamos ya a montar a **principios  de noviembre.**
 
-## la inaguración
+## La inaguración
  solemos inagurar hacia finales de noviembre o principios de` diciembre`.
 > Normalmente viene gente de todas las edades, grupos como ahora el TAPIS, el Junior, catequesis. vecinos y gete que le gusta y
  se emociona al ver el belén.
@@ -35,4 +35,3 @@ es decir, empezamos ha prepar todo lo que nececitamos hacer para el año que vie
 
 ![hola](https://scontent-mad1-1.xx.fbcdn.net/v/t1.0-9/s960x960/81531273_1400980916728011_7663899072721321984_o.jpg?_nc_cat=106&_nc_sid=8024bb&_nc_ohc=YZI5FkwDXq8AX98NABx&_nc_ht=scontent-mad1-1.xx&tp=7&oh=bce04919beafc0876d55b3b7e7fbfce5&oe=5F8B9574)
  
-<span style="color:orange;">Word up</span>
