@@ -15,7 +15,7 @@ es decir, empezamos ha prepar todo lo que nececitamos hacer para el año que vie
 ### Como lo hacemos    
   1. Priemro pensamos que canbiar en respecto al año passado
   2. despues miramos en varias paginas como esta: [corchosgomez](https://www.corchosgomez.com/)  
-    >entramos en esa página para comprar figuras etc. 
+     entramos en esa página para comprar figuras etc. 
   3. lo solemos hacer todo natural con piedras,  troncos , _corfa dels troncs_ y piedras de sal de moro y plantas naturales etnre otras cosas.
   
  # Como nos organizamos ?
