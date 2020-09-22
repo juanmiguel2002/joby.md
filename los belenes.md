@@ -14,7 +14,7 @@ es decir, empezamos ha prepar todo lo que nececitamos hacer para el año que vie
 ![foto belen](https://scontent-mad1-1.xx.fbcdn.net/v/t1.0-9/s960x960/81347755_1400980760061360_3994236155540275200_o.jpg?_nc_cat=102&_nc_sid=8024bb&_nc_ohc=Jo2KZqqwdTIAX-E3BoE&_nc_ht=scontent-mad1-1.xx&tp=7&oh=13c3b475977c3e624d8573f9c952aa9f&oe=5F8D9740)
 ### Como lo hacemos    
   1. Priemro pensamos que canbiar en respecto al año passado
-  2. despues miramos en varias paginas como esta :[corchosgomez](https://www.corchosgomez.com/)  
+  2. despues miramos en varias paginas como esta: [corchosgomez](https://www.corchosgomez.com/)  
     >entramos en esa página para comprar figuras etc. 
   3. lo solemos hacer todo natural con piedras,  troncos , _corfa dels troncs_ y piedras de sal de moro y plantas naturales etnre otras cosas.
   
