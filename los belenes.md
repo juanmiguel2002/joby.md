@@ -17,10 +17,16 @@ es decir, empezamos ha prepar todo lo que nececitamos hacer para el año que vie
   2. despues miramos en varias paginas como esta: [corchosgomez](https://www.corchosgomez.com/)  
      entramos en esa página para comprar figuras etc. 
   3. lo solemos hacer todo natural con piedras,  troncos , _corfa dels troncs_ y piedras de sal de moro y plantas naturales etnre otras cosas.
+  4. Lo hacemos por partes, es decir, primero hacemos un lado del comedor _es donde lo hacemos_ y 
+     así vamos haciendo desde dentro hacia fuera de este. 
+  5. utilizamos corcho y maderas para hacer alturas para que no este todo plano. 
+  6. utilizamos también piedras y troncos para hacer paredes y bajadas.
   
  # Como nos organizamos ?
-*  en el verano  construyo las casas
+*  en el verano  construyo yo las casas.
 * en otoño ponemos en practica las modificaciones de la base de este.
+* estamos como unas 2-3 semanas para aclarar como ponemos estas piezas o como colocamos estas maderas.
+* la base esta echa de _puertas_ que hemos quitado de esa casa :grinning:
 * finalmente empezamos ya a montar a **principios  de noviembre.**
 
 ## La inaguración
